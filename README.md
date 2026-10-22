@@ -1,1 +1,1 @@
-History remembers the day, its our job to remember the people.
+History remembers the day, it's our job to remember the people.
